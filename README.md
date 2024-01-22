@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Ali
+- 👀 I’m interested in Gym/Games/Coding
+- 🌱 I’m currently learning Html/C#
+- 😄 Pronouns: Gym/Rat
